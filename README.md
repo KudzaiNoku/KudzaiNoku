@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KudzaiNoku
+- 👀 I’m interested in software development, drawing and hiking
+- 🌱 I’m currently learning mobile app development
+- 📫 How to reach me : www.linkedin.com/in/kudzai-nyika-a471a523b
